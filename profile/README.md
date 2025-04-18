@@ -3,9 +3,9 @@
 
 91 𝘮𝘪𝘯 | 4𝘒 𝘜𝘓𝘛𝘙𝘈𝘏𝘋 | 𝘍𝘜𝘓𝘓 𝘏𝘋 (1080𝘱) | 𝘗𝘙𝘖𝘉𝘈 𝘎𝘙𝘈𝘛𝘜𝘐𝘛Ă
 
-✅𝘝𝘦𝘻𝘪 𝘖𝘯𝘭𝘪𝘯𝘦 𝘍𝘪𝘭𝘮 ➤ [𝘜𝘳𝘮𝘢𝘳𝘪𝘵𝘪 Minecraft: Filmul (2025) 𝘍𝘪𝘭𝘮𝘶𝘭 𝘖𝘯𝘭𝘪𝘯𝘦 𝘙𝘰𝘮𝘢𝘯𝘢]([https://crop.link/p/LHSsR6](https://watch-32.org/ro/950387/a-minecraft-movie.html))
+✅𝘝𝘦𝘻𝘪 𝘖𝘯𝘭𝘪𝘯𝘦 𝘍𝘪𝘭𝘮 ➤ [𝘜𝘳𝘮𝘢𝘳𝘪𝘵𝘪 Minecraft: Filmul (2025) 𝘍𝘪𝘭𝘮𝘶𝘭 𝘖𝘯𝘭𝘪𝘯𝘦 𝘙𝘰𝘮𝘢𝘯𝘢](https://watch-32.org/ro/950387/a-minecraft-movie)
 
-✅𝘝𝘦𝘻𝘪 𝘖𝘯𝘭𝘪𝘯𝘦 𝘍𝘪𝘭𝘮 ➤ [𝘜𝘳𝘮𝘢𝘳𝘪𝘵𝘪 Minecraft: Filmul (2025) 𝘍𝘪𝘭𝘮𝘶𝘭 𝘖𝘯𝘭𝘪𝘯𝘦 𝘙𝘰𝘮𝘢𝘯𝘢]([https://crop.link/p/LHSsR6](https://watch-32.org/ro/950387/a-minecraft-movie.html))
+✅𝘝𝘦𝘻𝘪 𝘖𝘯𝘭𝘪𝘯𝘦 𝘍𝘪𝘭𝘮 ➤ [𝘜𝘳𝘮𝘢𝘳𝘪𝘵𝘪 Minecraft: Filmul (2025) 𝘍𝘪𝘭𝘮𝘶𝘭 𝘖𝘯𝘭𝘪𝘯𝘦 𝘙𝘰𝘮𝘢𝘯𝘢](https://watch-32.org/ro/950387/a-minecraft-movie)
 
 𝘊𝘶𝘳ăță𝘵𝘰𝘳𝘶𝘭 𝘚𝘵𝘶𝘢𝘳𝘵, 𝘒𝘦𝘷𝘪𝘯 ș𝘪 𝘉𝘰𝘣 𝘴𝘶𝘯𝘵 𝘳𝘦𝘤𝘳𝘶𝘵𝘢ț𝘪 𝘥𝘦 𝘚𝘤𝘢𝘳𝘭𝘦𝘵 𝘖𝘷𝘦𝘳𝘬𝘪𝘭𝘭, 𝘶𝘯 𝘴𝘶𝘱𝘦𝘳-𝘵𝘪𝘤ă𝘭𝘰𝘴 𝘤𝘢𝘳𝘦, 𝘢𝘭ă𝘵𝘶𝘳𝘪 𝘥𝘦 𝘴𝘰ț𝘶𝘭 𝘦𝘪 𝘪𝘯𝘷𝘦𝘯𝘵𝘢𝘵𝘰𝘳, 𝘏𝘦𝘳𝘣, 𝘤𝘳𝘦𝘦𝘢𝘻ă 𝘶𝘯 𝘤𝘰𝘮𝘱𝘭𝘰𝘵 𝘱𝘦𝘯𝘵𝘳𝘶 𝘢 𝘤𝘶𝘤𝘦𝘳𝘪 𝘭𝘶𝘮𝘦𝘢.
 
